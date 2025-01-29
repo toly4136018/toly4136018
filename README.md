@@ -15,3 +15,5 @@ You can click the Preview link to take a look at your changes.
 ### TO DO
 
 ✅ Join axelar [discord](https://discord.gg/axelar)
+
+| ❌ [ airdrop.pryzm.zone not eligible](https://airdrop.pryzm.zone/)                                           |  
